@@ -9,6 +9,7 @@
 - 0.5 tsp salt
 - 1/2 onion
 - 1 Tbsp cilantro
+- 1 clove garlic
 
 
 ## Instructions
